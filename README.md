@@ -1,3 +1,1 @@
-# polymus-homework
-DO IT
-
+гошишь - хорошо
